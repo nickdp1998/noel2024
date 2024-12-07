@@ -1,2 +1,20 @@
-# noel2024
-Idée cadeau
+# Idées de cadeaux (Noël 2024)
+### Livres
+***Les formats devraient déjà être les bons dans les liens***
+* Fullmetal Alchemist [Vol 2](https://www.amazon.ca/Fullmetal-Alchemist-Vol-2/dp/1421599791/130-6809425-1905334?pd_rd_w=jtKU5&content-id=amzn1.sym.9286c396-f989-473f-a51f-aeb6f0ce4e48&pf_rd_p=9286c396-f989-473f-a51f-aeb6f0ce4e48&pf_rd_r=YWA9QMQNAYT82CSYVZJB&pd_rd_wg=p7jyg&pd_rd_r=2021210c-8612-41dc-81ec-80e4bf5fa241&pd_rd_i=1421599791&psc=1), [Vol 3](https://www.amazon.ca/Fullmetal-Alchemist-Vol-3/dp/1421599805/130-6809425-1905334?pd_rd_w=jtKU5&content-id=amzn1.sym.9286c396-f989-473f-a51f-aeb6f0ce4e48&pf_rd_p=9286c396-f989-473f-a51f-aeb6f0ce4e48&pf_rd_r=YWA9QMQNAYT82CSYVZJB&pd_rd_wg=p7jyg&pd_rd_r=2021210c-8612-41dc-81ec-80e4bf5fa241&pd_rd_i=1421599805&psc=1), [Vol 4](https://www.amazon.ca/Fullmetal-Alchemist-Vol-4/dp/1421599856/130-6809425-1905334?pd_rd_w=70CVU&content-id=amzn1.sym.9286c396-f989-473f-a51f-aeb6f0ce4e48&pf_rd_p=9286c396-f989-473f-a51f-aeb6f0ce4e48&pf_rd_r=VZTHAG0F5CGT2CJKA9B0&pd_rd_wg=1IRPE&pd_rd_r=7c482b30-6a50-4cc6-909e-461504fb37e1&pd_rd_i=1421599856&psc=1);
+* Berserk [Vol 2](https://www.amazon.ca/gp/product/1506711995?ref_=dbs_m_mng_rwt_calw_thcv_1&storeType=ebooks), [Vol 3](https://www.amazon.ca/gp/product/1506712002?ref_=dbs_m_mng_rwt_calw_thcv_2&storeType=ebooks);
+* Invincible [Vol 2](https://www.amazon.ca/Invincible-Compendium-2-Robert-Kirkman/dp/1607067722?_encoding=UTF8&qid=&sr=), [Vol 3](https://www.amazon.ca/Invincible-Compendium-3-Robert-Kirkman/dp/1534306862?_encoding=UTF8&qid=&sr=);
+* Attack on Titan [Vol 2](https://www.amazon.ca/gp/product/1632361817?ref_=dbs_m_mng_rwt_calw_tpbk_1&storeType=ebooks), [Vol 3](https://www.amazon.ca/gp/product/1632362953?ref_=dbs_m_mng_rwt_calw_tpbk_2&storeType=ebooks);
+* [One-Punch Man](https://www.amazon.ca/dp/B07JK95JJH?binding=paperback&qid=1733536884&sr=8-2&ref=dbs_dp_rwt_sb_pc_tpbk);
+* [Wind and Truth](https://www.amazon.ca/Wind-Truth-Book-Stormlight-Archive/dp/1250319188?crid=EQEADHF5HHA9&dib=eyJ2IjoiMSJ9.nmGoKiB06qe5rXYNiWUBQsuwc3O5qKiddFhHrAKyiM7rvCDw2Lh3bw9aZEK99Q_4SVBT5aXqsNfDAV6KPbzJfjBQfLKPUv5jgSonFBYyziFL9eh5Fh9aPUPiGIF7Ox5OP0s9KFJ7-HYW2hF_R0Kw2054YiFGArXeKv04tgSkPQEl7OXl7LPRE2ljBtTq1nbaTMcHI03JwCY2u5Vuw5HtRY2Uh8W_9qX27WoOtZoYUJA.nuag-u8Q7uWA5aAqkZyTkNqOGUeTGwCSXVxh8D5rqmw&dib_tag=se&keywords=stormlight+archive&qid=1733535743&s=books&sprefix=storm%2Cstripbooks%2C82&sr=1-1).
+
+### Linge
+* Kangourou XL, couleur neutre ([Exemple](https://www.amazon.ca/Hanes-Pullover-Fleece-Hoodie-3X-Large/dp/B00JUM2V4W?crid=33SIHST9RG6S0&dib=eyJ2IjoiMSJ9.Eu18OgnhmN1SHFT2vh13ZCiSDYmvqzZo2L6fi5iqOSpYNE7aWE7KkAzbMPwBvQl9ixTK_UENcD0qC3T67XTZ-XbE8mRclxb9TRVoPdMBdVxTyDmoZDpxUc8TFcDkpapMmgqmEEDGvbrSO1Kxn13sWcLnGnwex-8kc6sx2xAk2tvaygxGKPqegHAkYDbqadK8zZYSpfYPAYI_EWnLOx68uJFwEgqQrNai2pBvRViKt84-W4yjZdTgxQVgKooEMSka4JNk3IhTeLmczCS7_3HTmw5ofK73G7htTNWOQkjblYY.ngAq5V3EbGcBN6inNIkiMgzm7FxxFWbo7Mi4T4MJgLM&dib_tag=se&keywords=hoodie%2Bclothes%2Bmen&qid=1733535969&sprefix=hoodie%2Bclothes%2Bmen%2Caps%2C101&sr=8-5&th=1&psc=1));
+* Polo de golf XL, couleur neutre ([Exemple](https://www.amazon.ca/CE-CERDR-Quick-Dry-Moisture-Wicking-Performance/dp/B0B6P7ZTD6?crid=G9IP7C8LDJX4&dib=eyJ2IjoiMSJ9.Y2ILu1FVsfKxIuSqoVYLni4ttrD0Ct9sY5TZTuIuITTgc5trUczV8jgjF57KLJV0WHDBxWEN9Q3OTgqQ6FtSIwcBKJVNF1IkJkidlS0T7spf_Tgcp6zz9R40pMudaZ7FwaRYNYnIhc_p2gESOrqilpHv_rGw8bG6wmjsvivPt2gMTPOwMFwjvV06k40Nd9ajSSXQB4teLxrJ5PLF3fI6s2m0JFsCVKCqzQpZeEax2VU4PH-ICje4P0LYtWjqSxUC12CuSa9o58-xH3hgRSMVsiwYFRM52vp0twgQ4L-S2Xo.BgEGJrMg5fCuNcRShNE5j06WYYOp5zqioSK9O-Kvnnw&dib_tag=se&keywords=polo+sport+homme&qid=1733536099&sprefix=Polo+spor%2Caps%2C98&sr=8-6));
+* Des bas ...
+
+### Misc.
+* [Earpads](https://www.amazon.ca/dp/B0CQBNSSX7?_encoding=UTF8&th=1);
+* [Crusher 2.5](https://www.amazon.ca/Captains-Crush-Hand-Gripper-Point/dp/B001O1ZC8O?crid=14SY2CAFLQOI2&dib=eyJ2IjoiMSJ9.iZgBAl0eoO6yg7p-AmMOvS77UEObls4M9d22wCFrdQuCo-n0c5DWDGnsI4-sVBNb-i6FkHzqA_YHYNHHlWQrp0oFsXZkIHwuJTwalU78HC2BaTF4ePF5bMN_Bvyv4Jo0OgoxcP6WHBcgsc1t5KiA5jvAWXGruZC2BNaxrRZkjXVTC2Uhb0cRABr3VeFFBGmt3UtbUjgpckpYD4uHMGwYXf5i2AMezR5mNK2bri88ELYm8d3S5KMYiL98W2SxQhSE_NRHlmyk_gJZ7qzRGgp-SayntN7lVvt7wGlE39dck3A.btxyqNCn-kb2wApQHqAYGKvE8Op0VrNkKnIE4W2bVuM&dib_tag=se&keywords=captain%2Bof%2Bcrush&qid=1733536490&sprefix=captain%2Bof%2Bcrush%2B%2Caps%2C95&sr=8-2&th=1&psc=1);
+* [Thermomètre et baromètre](https://www.amazon.ca/gp/product/B000A3IN10/ref=ewc_pr_img_1?smid=A3DWYIK6Y9EEQB&th=1) (Pour déco).
+
